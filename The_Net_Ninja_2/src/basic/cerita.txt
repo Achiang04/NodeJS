@@ -1,0 +1,779 @@
+MALAM membara membawaku untuk terus menanti kedatangan kereta warna biru. Aku duduk memperhatikan saksama setiap petugas yang mengabarkan kedatangannya. Kadang-kadang muncul suara dari speaker, “Mohon perhatiannya, akan datang dari jalur satu, kereta ekspres”. Lagi-lagi aku mengeluh, mungkinkah kereta yang harganya cuma tiga puluh lima ribu rupiah akan datang terlambat? Batinku berkata “sial!”
+
+Rasa kesalku akhirnya terobati saat kereta datang dari jalur dua. Sudah satu jam lamanya aku menanti dan aku hanya berpendapat bahwa ular sangat kuat pun tak bisa mengalahkan baja yang dalam sedetik bisa melaju sangat kencangnya. Sampai bebatuan melonjak tak pernah usai. Cepat larinya bak pacuan kuda yang memenangkan lotre mingguan.
+
+Butir-butir keringat jatuh dari mata dan daguku. Sesekali keluh kesah terucapkan dengan nada kasar. Panasnya malam setelah turun hujan tak ubahnya berjemur di padang sahara. Wajah-wajah dengan segala ekspresi telah terpampang rapi. Aku berjalan bersinggungan badan antara perempuan dan lelaki. Beberapa ibu dan anak kecil mencari gerbong yang agak sepi. Rupanya, ini tak terjadi hanya dalam realita pesta mudik dan Natal. Ataukah ini dijadikan kesempatan untuk menghemat pengeluaran dalam bulanan. Sungguh aku tak tahu.
+
+Begitu kereta berhenti, desakan koper dan jeritan manusia nyaring mengalahkan suara mesin. Di sini aku mencoba berjalan pelan dengan membawa koper besar. Seorang anak kecil menarik-narik celana jeansku.
+
+“Kak! Kakak orang kaya ya?” aku tak mengerti apa yang ditanyakannya.
+
+GERBONG LIMA
+
+Aku hanya tersenyum tak terlalu mengerti apa yang ditanyakannya. Pemenggalan-pemenggalan kata yang terlalu rumit, serumit semut mengatur pasukannya.
+
+Masih ditambah ada bayi merengek tak tahu bahasanya sendiri. Jelasnya aku masih sibuk mencari kursi kosong tak memedulikan beberapa pertanyaan dan omelan. Dari jauh kulihat seorang perempuan berhenti sejenak hingga dia keluarkan handphone warna ungu. Saatnya dia melintas di hadapanku, terlihat menarik hati, adakah magnet di kereta ini?
+
+Tubuhnya beraroma wangi apricot. Rambutnya seperti habis di- rebounding, lurus dan halus. Baju kuningnya melekat sangat ketat. Parasnya bulat penuh tata rias. Mata gemintangnya dibingkai warna biru pucat. Maskara telah melentikkan bulu matanya. Kulihat bibir tipisnya berwarna shocking pink. Dia sangat siap menggoda pria hingga salah satu pria merelakan tempat duduknya untuk perempuan tersebut.
+
+Pandanganku tertuju kepada kursi C 01. Di sana ada perempuan yang tadi kulihat sangat menarik. Dia memakai jaket keabu-abuan. Rapat matanya membuat orang-orang mengira bahwa dia adalah orang China yang sedang menikmati libur musim hujan di kereta ekonomi tanpa AC dan TV. Yang lebih parah, dia membuka jaketnya lalu mengipas-ngipas.
+
+“Tak kubiarkan berahi ini memuncak dan kesalahan di masa lalu tak akan terulang lagi di sini,” batinku mencoba menahannya. Lutut yang dia pamerkan kuanggap koran bekas.
+
+Pandanganku telah berubah. Kupalingkan mata kepada sosok di samping perempuan memesona itu. Tepatnya di kursi C 02. Aku melihat lelaki yang tak kekar atau pun terlalu kurus. Wajahnya terlihat sangat rapi dan dia memakai rompi ungu. Semilir angin malam membuat rasa kantuk terhenti di pundak lelaki kekar yang duduk di kursi C 03. Tapi, aku terusik suara nyaring pedagang asongan, dia hanya menambah desakan dalam kereta.
+
+Perangai anak-anak yang kujumpai tadi masih terus saja menanyakan keadaanku, bahkan soal cinta.
+
+“Kakak sudah nikah, ya? Ataukah sudah kawin?”
+
+Apakah kata-kata yang dimaksudkannya. Nikah dan kawin. Dua alur yang berbeda. Dua-duanya seperti belum kualami, tapi salah satu dari pilihan itu……. terbayang seperti menghantui.
+
+“Tidak, adik manis,” kedustaan yang menghujani otakku mulai terasa sakit. Kembali teringat gambar-gambar yang tak begitu jelas. Aku sulit mengatakannya bak menulis di atas lautan. Dan akulah lautan itu.
+
+Suasana gerah di malam hari walau pun hujan rintikrintik jatuh. Ditambah kebisingan para penumpang, aku tak berdaya melawan keadaan yang sangat menjengkelkan ini. Saat berhenti di Stasiun Cirebon, aku menguatkan langkah. Kulawan desakan para penumpang menuju gerbong empat. Mungkin di sana aku bisa mendapatkan tempat duduk dan segera pejamkan mata.
+
+GERBONG EMPAT
+
+Kereta yang aku tumpangi memasuki Cirebon. Beberapa stasiun di Jawa Barat kulalui. Gelap malam semakin melarut. Retakan-retakan daun patah. Aku mulai membaca doa tidur dan mimpi indah.
+
+Tetapi, beberapa kali handphone-ku berbunyi. Lalu lalang pesan seakan menjadi dampak akan berlebihan bergurau. Aku mencoba membalas beberapa sms yang masuk. Aku hanya menulis “aku sibuk.” Kantukku terobati.
+
+Di kursi D 01, kulihat ada seorang yang berkumis. Aku tak tahu itukah lele yang didambakan setiap perempuan? Ataukah perempuan mendambakan dada kekar dan anting kegagahan yang melekat di telinga kanannya? Bahkan, ada yang berbisik, “Aku lebih suka saat dia mengisap rokok. Jiwa kasarnya seakan terlihat langsung.” Aku hanya mendengar bisikannya.
+
+Tetapi, ada yang menimpali bisikannya. “Kepulan asap itulah yang nanti membuat asmaku kambuh. Apa dia mau membawakan dokter untukku?” aku agak setuju dengan komentar yang ini.
+
+Lalu, di belakangku muncul anak yang tadi kujumpai.
+
+“Kakak beruntung ya… tak merokok….”
+
+Aku tak mengerti apakah yang dikatakannya? Apakah dia menyindir ataukah sekadar kagum? Lebih-lebih aku heran kenapakah dia terus mengikutiku?
+
+Tetapi biarlah, toh dia hanya anak kecil yang kehilangan orang tua. Aku memberinya permen dan cokelat. Padahal, rencanaku, setelah sampai di Pekalongan, itu akan kuberikan kepada anak tetanggaku yang usianya hampir sama dengannya.
+
+Sedangkan di kursi D 02, kulihat seorang laki-laki yang hidupnya hanya memuji Tuhan. Tentu aku tahu saat kulihat yang dia genggam bukan handphone atau MP4, melainkan sebuah tasbih melingkar warna putih. Bibirnya masih saja dibasahi kalimat tayibah.
+
+Sampai di sini pengihatanku tak nakal lagi karena tak ada perempuan semenarik tadi. Dia adalah pemandangan terindah selama hidupku. Aku berharap bisa mendapatkan kursi kosong untuk mengobati rasa kantukku yang mulai menjalar ke mata. Tetapi akhirnya aku tertidur dengan gaya orang sedang buang air besar di wc umum.
+
+Lanskap angkasa menunjukkan amukan amarahnya. Beberapa petir menyambut kedatangan kereta di stasiun kecil Tegal. Desau dedaunan jati, apel, dan bahkan mangga golek. Wajah-wajah boneka sama seperti yang pernah kututurkan sebelumnya.
+
+Bau kotok ayam menyerbu hidung pesekku yang mungkin banyak komedo. Saat itu para pedagang asongan mengeraskan teriaknya untuk mengalahkan suara mesin, “nasi hangat makan… makan.” Ada juga suara pengemis, “uang… barokah… uang… barokah.” Aku tak habis pikir di dunia secanggih ini, masih ada pengemis yang seharian tak makan.
+
+Beberapa koran lusuh tergeletak setelah para penumpang berhenti di Tegal. Ini kesempatan bagiku untuk tidur di atas kursi. Dan akhirnya malam mengizinkanku duduk setelah sekian lama berdiri.
+
+“Syukurlah,” ucapku lalu langsung duduk di kursi D 01.
+
+Wajah yang kulihat di kursi D 02 di gerbong empat berganti dengan wajah seorang ibu yang menggendong bayinya, “Umur berapa, Bu?” tanyaku.
+
+Tapi, dia hanya mengangguk tanpa ada suara, “Hm…, bayi yang ibu gendong umur berapa?”
+
+Lagi-lagi tak ada jawaban. Seorang asongan membuatku bernafsu untuk membeli mi seduh dengan aroma bawang Bombay.
+
+“Satu, Mang! Harganya tiga ribu kan, Mang?”
+
+“Satunya lima ribu!” jawabnya kasar.
+
+Semenit sebelum aku merogoh saku tiba-tiba si ibu di sebelahku sudah duluan membayarnya.
+
+“Matur nuwun,” kataku.
+
+Hujan masih terus mengguyur beberapa wilayah di Jawa Tengah. Benakku bertanya-tanya. Akankah sampai di tujuan dengan selamat?
+
+Di tengah kesyahduan yang menjemput tidur, seorang polisi penarik karcis datang dengan pose keangkuhannya. Di atas sakunya terlihat beberapa lambang jabatan. Berkilau menyipitkan mata. Karcisku sudah kuberikan dan sosoknya mulai menjauh. Kini tinggal si ibu di sebelahku terus saja menenangkan bayinya yang rewel. Dia membuatku terganggu untuk mendengarkan MP4.
+
+“Berisik anak ibu!” tetapi teguranku tak membuatnya patah semangat.
+
+Aku kembali memandangi wajah di sampingku. Ada rasa aneh antara aku dan dia. Sepertinya aku pernah mengenali, bahkan akrab kepadanya, namun aku teringat bahwa ada luka di otakku.
+
+“Maaf, apakah kita pernah bertemu?” tanyaku.
+
+Jawabannya masih hampa.
+
+“Maaf, apakah kita pernah bertemu sebelumnya?” aku mengulangi pertanyaanku dengan ditambahi kata.
+
+Namun, dia membisu, acuh tak acuh. Hanya bayinya yang dia pikirkan.
+
+Bayi itu terus meronta-ronta seakan ingin bertemu dengan bapaknya.
+
+Aku mencoba menanyakan sebuah pertanyaan, “Bapaknya tak ikut kenapa?”
+
+Ya…, aku menduga bahwa dia akan tetap membisu. Tapi, tidak kali ini. Dia menjawab pertanyaanku dengan singkat.
+
+“Bapaknya selingkuh dan tak mau mempertanggungjawabkan perbuatannya,” jawabnya kasar.
+
+Bahkan, aku sempat kaget dibuatnya. Bagaimana tidak? Dia menjawab pertanyaanku dengan mata melotot. Aku masih heran dengan tingkahnya yang terus melotot kepadaku. Aku seperti dijadikan pelampiasan dendam atas peristiwa yang dia alami dan ceritakan kepadaku.
+
+Tiba-tiba dia berkata sepatah kata singkat, “Tolong jaga anak ini dan kursiku. Aku akan ke gerbong lima sebentar.”
+
+Aku tertawa manja. Kupikir dia tak betah menahan air kencingnya setelah minum sebotol air mineral. Tapi, kenapa dia harus ke gerbong lima? Ah, mungkin wc di gerbong empat ini telah sesak.
+
+“Ya,” aku mengiyakan perintahnya. Beberapa langkah kudengar dia meninggalkan gerbong empat. Aku hanya menjawab senyumnya setelah dia memalingkan wajahnya sebentar.
+
+Hawa terasa dingin saat memasuki Stasiun Pemalang, Jawa Tengah. Kudengar kereta sesak ini berhenti sejenak di Stasiun Pemalang. Ada keanehan memang setelah petir menyambar sangat dahsyat. Tapi, karena penumpang semakin banyak, maka kereta ini pun terus berjalan dengan kencang.
+
+Aku menatap jam di tanganku saat kereta berhenti lagi di stasiun kecil di Petarukan, salah satu kecamatan yang ada di Kabupaten Pemalang. Hujan mulai tak bersahabat lagi, bahkan suara tangisan bayi yang aku gendong kian terdengar nyaring. Bayi itu seakan memanggil ibunya agar segera kembali, begitulah aku mengira.
+
+“Sudah dua jam lebih si ibu tak kembali,” ucapku agak sedikit heran.
+
+Terdengar beberapa suara kaki riuh dengan sepatu warna putih, hitam, sesekali sandal jepit murahan dengan warna hijau polos. Salah satu di antara mereka ada yang beralas telapak kaki saja. Aku mengira itulah sandal kulit model terbaru. Tapi, anehnya lagi, mereka lari meninggalkan kursi saat terdengar suara letusan yang mahadahsyat.
+
+Aku melihat ada tas merah di sebelahku. Mungkin, tas itu sengaja ditinggalkan si ibu tadi. Ada secarik kertas berpita merah juga. Aku hanya membaca sebagian kata, “tolong jaga anak kita.”
+
+Ternyata gerombolan orang itu berlari bukan untuk melihat macan masuk kereta atau pun melihat kembang api di tengah hujan lebat atau melihat orang gila yang menari- nari riang. Melainkan karena gerbong lima terlepas dari relnya dan terguling-guling di sawah.nSuara benturannya mengalahkan petir.
+
+Aku segera lari ke arah gerombolan orang itu sambil tetap menggendong bayi.
+
+Aku menjerit kencang, “Raniiii…!!”
+
+Ini kali pertamanya aku menangis sampai mengeluarkan air mata penyesalan.
+
+Si anak yang dari tadi kulihat bertanya, “Kakak nangis kenapa? Kita kan selamat ataukah kakak kehilangan istri? Kakak sudah kawin kan? Tapi belum nikah ya? Kakak, ini aku bawa sapu tangan. Kita menangis bersama-sama setelah ini.” (*)
+
+MALAM membara membawaku untuk terus menanti kedatangan kereta warna biru. Aku duduk memperhatikan saksama setiap petugas yang mengabarkan kedatangannya. Kadang-kadang muncul suara dari speaker, “Mohon perhatiannya, akan datang dari jalur satu, kereta ekspres”. Lagi-lagi aku mengeluh, mungkinkah kereta yang harganya cuma tiga puluh lima ribu rupiah akan datang terlambat? Batinku berkata “sial!”
+
+Rasa kesalku akhirnya terobati saat kereta datang dari jalur dua. Sudah satu jam lamanya aku menanti dan aku hanya berpendapat bahwa ular sangat kuat pun tak bisa mengalahkan baja yang dalam sedetik bisa melaju sangat kencangnya. Sampai bebatuan melonjak tak pernah usai. Cepat larinya bak pacuan kuda yang memenangkan lotre mingguan.
+
+Butir-butir keringat jatuh dari mata dan daguku. Sesekali keluh kesah terucapkan dengan nada kasar. Panasnya malam setelah turun hujan tak ubahnya berjemur di padang sahara. Wajah-wajah dengan segala ekspresi telah terpampang rapi. Aku berjalan bersinggungan badan antara perempuan dan lelaki. Beberapa ibu dan anak kecil mencari gerbong yang agak sepi. Rupanya, ini tak terjadi hanya dalam realita pesta mudik dan Natal. Ataukah ini dijadikan kesempatan untuk menghemat pengeluaran dalam bulanan. Sungguh aku tak tahu.
+
+Begitu kereta berhenti, desakan koper dan jeritan manusia nyaring mengalahkan suara mesin. Di sini aku mencoba berjalan pelan dengan membawa koper besar. Seorang anak kecil menarik-narik celana jeansku.
+
+“Kak! Kakak orang kaya ya?” aku tak mengerti apa yang ditanyakannya.
+
+GERBONG LIMA
+
+Aku hanya tersenyum tak terlalu mengerti apa yang ditanyakannya. Pemenggalan-pemenggalan kata yang terlalu rumit, serumit semut mengatur pasukannya.
+
+Masih ditambah ada bayi merengek tak tahu bahasanya sendiri. Jelasnya aku masih sibuk mencari kursi kosong tak memedulikan beberapa pertanyaan dan omelan. Dari jauh kulihat seorang perempuan berhenti sejenak hingga dia keluarkan handphone warna ungu. Saatnya dia melintas di hadapanku, terlihat menarik hati, adakah magnet di kereta ini?
+
+Tubuhnya beraroma wangi apricot. Rambutnya seperti habis di- rebounding, lurus dan halus. Baju kuningnya melekat sangat ketat. Parasnya bulat penuh tata rias. Mata gemintangnya dibingkai warna biru pucat. Maskara telah melentikkan bulu matanya. Kulihat bibir tipisnya berwarna shocking pink. Dia sangat siap menggoda pria hingga salah satu pria merelakan tempat duduknya untuk perempuan tersebut.
+
+Pandanganku tertuju kepada kursi C 01. Di sana ada perempuan yang tadi kulihat sangat menarik. Dia memakai jaket keabu-abuan. Rapat matanya membuat orang-orang mengira bahwa dia adalah orang China yang sedang menikmati libur musim hujan di kereta ekonomi tanpa AC dan TV. Yang lebih parah, dia membuka jaketnya lalu mengipas-ngipas.
+
+“Tak kubiarkan berahi ini memuncak dan kesalahan di masa lalu tak akan terulang lagi di sini,” batinku mencoba menahannya. Lutut yang dia pamerkan kuanggap koran bekas.
+
+Pandanganku telah berubah. Kupalingkan mata kepada sosok di samping perempuan memesona itu. Tepatnya di kursi C 02. Aku melihat lelaki yang tak kekar atau pun terlalu kurus. Wajahnya terlihat sangat rapi dan dia memakai rompi ungu. Semilir angin malam membuat rasa kantuk terhenti di pundak lelaki kekar yang duduk di kursi C 03. Tapi, aku terusik suara nyaring pedagang asongan, dia hanya menambah desakan dalam kereta.
+
+Perangai anak-anak yang kujumpai tadi masih terus saja menanyakan keadaanku, bahkan soal cinta.
+
+“Kakak sudah nikah, ya? Ataukah sudah kawin?”
+
+Apakah kata-kata yang dimaksudkannya. Nikah dan kawin. Dua alur yang berbeda. Dua-duanya seperti belum kualami, tapi salah satu dari pilihan itu……. terbayang seperti menghantui.
+
+“Tidak, adik manis,” kedustaan yang menghujani otakku mulai terasa sakit. Kembali teringat gambar-gambar yang tak begitu jelas. Aku sulit mengatakannya bak menulis di atas lautan. Dan akulah lautan itu.
+
+Suasana gerah di malam hari walau pun hujan rintikrintik jatuh. Ditambah kebisingan para penumpang, aku tak berdaya melawan keadaan yang sangat menjengkelkan ini. Saat berhenti di Stasiun Cirebon, aku menguatkan langkah. Kulawan desakan para penumpang menuju gerbong empat. Mungkin di sana aku bisa mendapatkan tempat duduk dan segera pejamkan mata.
+
+GERBONG EMPAT
+
+Kereta yang aku tumpangi memasuki Cirebon. Beberapa stasiun di Jawa Barat kulalui. Gelap malam semakin melarut. Retakan-retakan daun patah. Aku mulai membaca doa tidur dan mimpi indah.
+
+Tetapi, beberapa kali handphone-ku berbunyi. Lalu lalang pesan seakan menjadi dampak akan berlebihan bergurau. Aku mencoba membalas beberapa sms yang masuk. Aku hanya menulis “aku sibuk.” Kantukku terobati.
+
+Di kursi D 01, kulihat ada seorang yang berkumis. Aku tak tahu itukah lele yang didambakan setiap perempuan? Ataukah perempuan mendambakan dada kekar dan anting kegagahan yang melekat di telinga kanannya? Bahkan, ada yang berbisik, “Aku lebih suka saat dia mengisap rokok. Jiwa kasarnya seakan terlihat langsung.” Aku hanya mendengar bisikannya.
+
+Tetapi, ada yang menimpali bisikannya. “Kepulan asap itulah yang nanti membuat asmaku kambuh. Apa dia mau membawakan dokter untukku?” aku agak setuju dengan komentar yang ini.
+
+Lalu, di belakangku muncul anak yang tadi kujumpai.
+
+“Kakak beruntung ya… tak merokok….”
+
+Aku tak mengerti apakah yang dikatakannya? Apakah dia menyindir ataukah sekadar kagum? Lebih-lebih aku heran kenapakah dia terus mengikutiku?
+
+Tetapi biarlah, toh dia hanya anak kecil yang kehilangan orang tua. Aku memberinya permen dan cokelat. Padahal, rencanaku, setelah sampai di Pekalongan, itu akan kuberikan kepada anak tetanggaku yang usianya hampir sama dengannya.
+
+Sedangkan di kursi D 02, kulihat seorang laki-laki yang hidupnya hanya memuji Tuhan. Tentu aku tahu saat kulihat yang dia genggam bukan handphone atau MP4, melainkan sebuah tasbih melingkar warna putih. Bibirnya masih saja dibasahi kalimat tayibah.
+
+Sampai di sini pengihatanku tak nakal lagi karena tak ada perempuan semenarik tadi. Dia adalah pemandangan terindah selama hidupku. Aku berharap bisa mendapatkan kursi kosong untuk mengobati rasa kantukku yang mulai menjalar ke mata. Tetapi akhirnya aku tertidur dengan gaya orang sedang buang air besar di wc umum.
+
+Lanskap angkasa menunjukkan amukan amarahnya. Beberapa petir menyambut kedatangan kereta di stasiun kecil Tegal. Desau dedaunan jati, apel, dan bahkan mangga golek. Wajah-wajah boneka sama seperti yang pernah kututurkan sebelumnya.
+
+Bau kotok ayam menyerbu hidung pesekku yang mungkin banyak komedo. Saat itu para pedagang asongan mengeraskan teriaknya untuk mengalahkan suara mesin, “nasi hangat makan… makan.” Ada juga suara pengemis, “uang… barokah… uang… barokah.” Aku tak habis pikir di dunia secanggih ini, masih ada pengemis yang seharian tak makan.
+
+Beberapa koran lusuh tergeletak setelah para penumpang berhenti di Tegal. Ini kesempatan bagiku untuk tidur di atas kursi. Dan akhirnya malam mengizinkanku duduk setelah sekian lama berdiri.
+
+“Syukurlah,” ucapku lalu langsung duduk di kursi D 01.
+
+Wajah yang kulihat di kursi D 02 di gerbong empat berganti dengan wajah seorang ibu yang menggendong bayinya, “Umur berapa, Bu?” tanyaku.
+
+Tapi, dia hanya mengangguk tanpa ada suara, “Hm…, bayi yang ibu gendong umur berapa?”
+
+Lagi-lagi tak ada jawaban. Seorang asongan membuatku bernafsu untuk membeli mi seduh dengan aroma bawang Bombay.
+
+“Satu, Mang! Harganya tiga ribu kan, Mang?”
+
+“Satunya lima ribu!” jawabnya kasar.
+
+Semenit sebelum aku merogoh saku tiba-tiba si ibu di sebelahku sudah duluan membayarnya.
+
+“Matur nuwun,” kataku.
+
+Hujan masih terus mengguyur beberapa wilayah di Jawa Tengah. Benakku bertanya-tanya. Akankah sampai di tujuan dengan selamat?
+
+Di tengah kesyahduan yang menjemput tidur, seorang polisi penarik karcis datang dengan pose keangkuhannya. Di atas sakunya terlihat beberapa lambang jabatan. Berkilau menyipitkan mata. Karcisku sudah kuberikan dan sosoknya mulai menjauh. Kini tinggal si ibu di sebelahku terus saja menenangkan bayinya yang rewel. Dia membuatku terganggu untuk mendengarkan MP4.
+
+“Berisik anak ibu!” tetapi teguranku tak membuatnya patah semangat.
+
+Aku kembali memandangi wajah di sampingku. Ada rasa aneh antara aku dan dia. Sepertinya aku pernah mengenali, bahkan akrab kepadanya, namun aku teringat bahwa ada luka di otakku.
+
+“Maaf, apakah kita pernah bertemu?” tanyaku.
+
+Jawabannya masih hampa.
+
+“Maaf, apakah kita pernah bertemu sebelumnya?” aku mengulangi pertanyaanku dengan ditambahi kata.
+
+Namun, dia membisu, acuh tak acuh. Hanya bayinya yang dia pikirkan.
+
+Bayi itu terus meronta-ronta seakan ingin bertemu dengan bapaknya.
+
+Aku mencoba menanyakan sebuah pertanyaan, “Bapaknya tak ikut kenapa?”
+
+Ya…, aku menduga bahwa dia akan tetap membisu. Tapi, tidak kali ini. Dia menjawab pertanyaanku dengan singkat.
+
+“Bapaknya selingkuh dan tak mau mempertanggungjawabkan perbuatannya,” jawabnya kasar.
+
+Bahkan, aku sempat kaget dibuatnya. Bagaimana tidak? Dia menjawab pertanyaanku dengan mata melotot. Aku masih heran dengan tingkahnya yang terus melotot kepadaku. Aku seperti dijadikan pelampiasan dendam atas peristiwa yang dia alami dan ceritakan kepadaku.
+
+Tiba-tiba dia berkata sepatah kata singkat, “Tolong jaga anak ini dan kursiku. Aku akan ke gerbong lima sebentar.”
+
+Aku tertawa manja. Kupikir dia tak betah menahan air kencingnya setelah minum sebotol air mineral. Tapi, kenapa dia harus ke gerbong lima? Ah, mungkin wc di gerbong empat ini telah sesak.
+
+“Ya,” aku mengiyakan perintahnya. Beberapa langkah kudengar dia meninggalkan gerbong empat. Aku hanya menjawab senyumnya setelah dia memalingkan wajahnya sebentar.
+
+Hawa terasa dingin saat memasuki Stasiun Pemalang, Jawa Tengah. Kudengar kereta sesak ini berhenti sejenak di Stasiun Pemalang. Ada keanehan memang setelah petir menyambar sangat dahsyat. Tapi, karena penumpang semakin banyak, maka kereta ini pun terus berjalan dengan kencang.
+
+Aku menatap jam di tanganku saat kereta berhenti lagi di stasiun kecil di Petarukan, salah satu kecamatan yang ada di Kabupaten Pemalang. Hujan mulai tak bersahabat lagi, bahkan suara tangisan bayi yang aku gendong kian terdengar nyaring. Bayi itu seakan memanggil ibunya agar segera kembali, begitulah aku mengira.
+
+“Sudah dua jam lebih si ibu tak kembali,” ucapku agak sedikit heran.
+
+Terdengar beberapa suara kaki riuh dengan sepatu warna putih, hitam, sesekali sandal jepit murahan dengan warna hijau polos. Salah satu di antara mereka ada yang beralas telapak kaki saja. Aku mengira itulah sandal kulit model terbaru. Tapi, anehnya lagi, mereka lari meninggalkan kursi saat terdengar suara letusan yang mahadahsyat.
+
+Aku melihat ada tas merah di sebelahku. Mungkin, tas itu sengaja ditinggalkan si ibu tadi. Ada secarik kertas berpita merah juga. Aku hanya membaca sebagian kata, “tolong jaga anak kita.”
+
+Ternyata gerombolan orang itu berlari bukan untuk melihat macan masuk kereta atau pun melihat kembang api di tengah hujan lebat atau melihat orang gila yang menari- nari riang. Melainkan karena gerbong lima terlepas dari relnya dan terguling-guling di sawah.nSuara benturannya mengalahkan petir.
+
+Aku segera lari ke arah gerombolan orang itu sambil tetap menggendong bayi.
+
+Aku menjerit kencang, “Raniiii…!!”
+
+Ini kali pertamanya aku menangis sampai mengeluarkan air mata penyesalan.
+
+Si anak yang dari tadi kulihat bertanya, “Kakak nangis kenapa? Kita kan selamat ataukah kakak kehilangan istri? Kakak sudah kawin kan? Tapi belum nikah ya? Kakak, ini aku bawa sapu tangan. Kita menangis bersama-sama setelah ini.” (*)
+
+MALAM membara membawaku untuk terus menanti kedatangan kereta warna biru. Aku duduk memperhatikan saksama setiap petugas yang mengabarkan kedatangannya. Kadang-kadang muncul suara dari speaker, “Mohon perhatiannya, akan datang dari jalur satu, kereta ekspres”. Lagi-lagi aku mengeluh, mungkinkah kereta yang harganya cuma tiga puluh lima ribu rupiah akan datang terlambat? Batinku berkata “sial!”
+
+Rasa kesalku akhirnya terobati saat kereta datang dari jalur dua. Sudah satu jam lamanya aku menanti dan aku hanya berpendapat bahwa ular sangat kuat pun tak bisa mengalahkan baja yang dalam sedetik bisa melaju sangat kencangnya. Sampai bebatuan melonjak tak pernah usai. Cepat larinya bak pacuan kuda yang memenangkan lotre mingguan.
+
+Butir-butir keringat jatuh dari mata dan daguku. Sesekali keluh kesah terucapkan dengan nada kasar. Panasnya malam setelah turun hujan tak ubahnya berjemur di padang sahara. Wajah-wajah dengan segala ekspresi telah terpampang rapi. Aku berjalan bersinggungan badan antara perempuan dan lelaki. Beberapa ibu dan anak kecil mencari gerbong yang agak sepi. Rupanya, ini tak terjadi hanya dalam realita pesta mudik dan Natal. Ataukah ini dijadikan kesempatan untuk menghemat pengeluaran dalam bulanan. Sungguh aku tak tahu.
+
+Begitu kereta berhenti, desakan koper dan jeritan manusia nyaring mengalahkan suara mesin. Di sini aku mencoba berjalan pelan dengan membawa koper besar. Seorang anak kecil menarik-narik celana jeansku.
+
+“Kak! Kakak orang kaya ya?” aku tak mengerti apa yang ditanyakannya.
+
+GERBONG LIMA
+
+Aku hanya tersenyum tak terlalu mengerti apa yang ditanyakannya. Pemenggalan-pemenggalan kata yang terlalu rumit, serumit semut mengatur pasukannya.
+
+Masih ditambah ada bayi merengek tak tahu bahasanya sendiri. Jelasnya aku masih sibuk mencari kursi kosong tak memedulikan beberapa pertanyaan dan omelan. Dari jauh kulihat seorang perempuan berhenti sejenak hingga dia keluarkan handphone warna ungu. Saatnya dia melintas di hadapanku, terlihat menarik hati, adakah magnet di kereta ini?
+
+Tubuhnya beraroma wangi apricot. Rambutnya seperti habis di- rebounding, lurus dan halus. Baju kuningnya melekat sangat ketat. Parasnya bulat penuh tata rias. Mata gemintangnya dibingkai warna biru pucat. Maskara telah melentikkan bulu matanya. Kulihat bibir tipisnya berwarna shocking pink. Dia sangat siap menggoda pria hingga salah satu pria merelakan tempat duduknya untuk perempuan tersebut.
+
+Pandanganku tertuju kepada kursi C 01. Di sana ada perempuan yang tadi kulihat sangat menarik. Dia memakai jaket keabu-abuan. Rapat matanya membuat orang-orang mengira bahwa dia adalah orang China yang sedang menikmati libur musim hujan di kereta ekonomi tanpa AC dan TV. Yang lebih parah, dia membuka jaketnya lalu mengipas-ngipas.
+
+“Tak kubiarkan berahi ini memuncak dan kesalahan di masa lalu tak akan terulang lagi di sini,” batinku mencoba menahannya. Lutut yang dia pamerkan kuanggap koran bekas.
+
+Pandanganku telah berubah. Kupalingkan mata kepada sosok di samping perempuan memesona itu. Tepatnya di kursi C 02. Aku melihat lelaki yang tak kekar atau pun terlalu kurus. Wajahnya terlihat sangat rapi dan dia memakai rompi ungu. Semilir angin malam membuat rasa kantuk terhenti di pundak lelaki kekar yang duduk di kursi C 03. Tapi, aku terusik suara nyaring pedagang asongan, dia hanya menambah desakan dalam kereta.
+
+Perangai anak-anak yang kujumpai tadi masih terus saja menanyakan keadaanku, bahkan soal cinta.
+
+“Kakak sudah nikah, ya? Ataukah sudah kawin?”
+
+Apakah kata-kata yang dimaksudkannya. Nikah dan kawin. Dua alur yang berbeda. Dua-duanya seperti belum kualami, tapi salah satu dari pilihan itu……. terbayang seperti menghantui.
+
+“Tidak, adik manis,” kedustaan yang menghujani otakku mulai terasa sakit. Kembali teringat gambar-gambar yang tak begitu jelas. Aku sulit mengatakannya bak menulis di atas lautan. Dan akulah lautan itu.
+
+Suasana gerah di malam hari walau pun hujan rintikrintik jatuh. Ditambah kebisingan para penumpang, aku tak berdaya melawan keadaan yang sangat menjengkelkan ini. Saat berhenti di Stasiun Cirebon, aku menguatkan langkah. Kulawan desakan para penumpang menuju gerbong empat. Mungkin di sana aku bisa mendapatkan tempat duduk dan segera pejamkan mata.
+
+GERBONG EMPAT
+
+Kereta yang aku tumpangi memasuki Cirebon. Beberapa stasiun di Jawa Barat kulalui. Gelap malam semakin melarut. Retakan-retakan daun patah. Aku mulai membaca doa tidur dan mimpi indah.
+
+Tetapi, beberapa kali handphone-ku berbunyi. Lalu lalang pesan seakan menjadi dampak akan berlebihan bergurau. Aku mencoba membalas beberapa sms yang masuk. Aku hanya menulis “aku sibuk.” Kantukku terobati.
+
+Di kursi D 01, kulihat ada seorang yang berkumis. Aku tak tahu itukah lele yang didambakan setiap perempuan? Ataukah perempuan mendambakan dada kekar dan anting kegagahan yang melekat di telinga kanannya? Bahkan, ada yang berbisik, “Aku lebih suka saat dia mengisap rokok. Jiwa kasarnya seakan terlihat langsung.” Aku hanya mendengar bisikannya.
+
+Tetapi, ada yang menimpali bisikannya. “Kepulan asap itulah yang nanti membuat asmaku kambuh. Apa dia mau membawakan dokter untukku?” aku agak setuju dengan komentar yang ini.
+
+Lalu, di belakangku muncul anak yang tadi kujumpai.
+
+“Kakak beruntung ya… tak merokok….”
+
+Aku tak mengerti apakah yang dikatakannya? Apakah dia menyindir ataukah sekadar kagum? Lebih-lebih aku heran kenapakah dia terus mengikutiku?
+
+Tetapi biarlah, toh dia hanya anak kecil yang kehilangan orang tua. Aku memberinya permen dan cokelat. Padahal, rencanaku, setelah sampai di Pekalongan, itu akan kuberikan kepada anak tetanggaku yang usianya hampir sama dengannya.
+
+Sedangkan di kursi D 02, kulihat seorang laki-laki yang hidupnya hanya memuji Tuhan. Tentu aku tahu saat kulihat yang dia genggam bukan handphone atau MP4, melainkan sebuah tasbih melingkar warna putih. Bibirnya masih saja dibasahi kalimat tayibah.
+
+Sampai di sini pengihatanku tak nakal lagi karena tak ada perempuan semenarik tadi. Dia adalah pemandangan terindah selama hidupku. Aku berharap bisa mendapatkan kursi kosong untuk mengobati rasa kantukku yang mulai menjalar ke mata. Tetapi akhirnya aku tertidur dengan gaya orang sedang buang air besar di wc umum.
+
+Lanskap angkasa menunjukkan amukan amarahnya. Beberapa petir menyambut kedatangan kereta di stasiun kecil Tegal. Desau dedaunan jati, apel, dan bahkan mangga golek. Wajah-wajah boneka sama seperti yang pernah kututurkan sebelumnya.
+
+Bau kotok ayam menyerbu hidung pesekku yang mungkin banyak komedo. Saat itu para pedagang asongan mengeraskan teriaknya untuk mengalahkan suara mesin, “nasi hangat makan… makan.” Ada juga suara pengemis, “uang… barokah… uang… barokah.” Aku tak habis pikir di dunia secanggih ini, masih ada pengemis yang seharian tak makan.
+
+Beberapa koran lusuh tergeletak setelah para penumpang berhenti di Tegal. Ini kesempatan bagiku untuk tidur di atas kursi. Dan akhirnya malam mengizinkanku duduk setelah sekian lama berdiri.
+
+“Syukurlah,” ucapku lalu langsung duduk di kursi D 01.
+
+Wajah yang kulihat di kursi D 02 di gerbong empat berganti dengan wajah seorang ibu yang menggendong bayinya, “Umur berapa, Bu?” tanyaku.
+
+Tapi, dia hanya mengangguk tanpa ada suara, “Hm…, bayi yang ibu gendong umur berapa?”
+
+Lagi-lagi tak ada jawaban. Seorang asongan membuatku bernafsu untuk membeli mi seduh dengan aroma bawang Bombay.
+
+“Satu, Mang! Harganya tiga ribu kan, Mang?”
+
+“Satunya lima ribu!” jawabnya kasar.
+
+Semenit sebelum aku merogoh saku tiba-tiba si ibu di sebelahku sudah duluan membayarnya.
+
+“Matur nuwun,” kataku.
+
+Hujan masih terus mengguyur beberapa wilayah di Jawa Tengah. Benakku bertanya-tanya. Akankah sampai di tujuan dengan selamat?
+
+Di tengah kesyahduan yang menjemput tidur, seorang polisi penarik karcis datang dengan pose keangkuhannya. Di atas sakunya terlihat beberapa lambang jabatan. Berkilau menyipitkan mata. Karcisku sudah kuberikan dan sosoknya mulai menjauh. Kini tinggal si ibu di sebelahku terus saja menenangkan bayinya yang rewel. Dia membuatku terganggu untuk mendengarkan MP4.
+
+“Berisik anak ibu!” tetapi teguranku tak membuatnya patah semangat.
+
+Aku kembali memandangi wajah di sampingku. Ada rasa aneh antara aku dan dia. Sepertinya aku pernah mengenali, bahkan akrab kepadanya, namun aku teringat bahwa ada luka di otakku.
+
+“Maaf, apakah kita pernah bertemu?” tanyaku.
+
+Jawabannya masih hampa.
+
+“Maaf, apakah kita pernah bertemu sebelumnya?” aku mengulangi pertanyaanku dengan ditambahi kata.
+
+Namun, dia membisu, acuh tak acuh. Hanya bayinya yang dia pikirkan.
+
+Bayi itu terus meronta-ronta seakan ingin bertemu dengan bapaknya.
+
+Aku mencoba menanyakan sebuah pertanyaan, “Bapaknya tak ikut kenapa?”
+
+Ya…, aku menduga bahwa dia akan tetap membisu. Tapi, tidak kali ini. Dia menjawab pertanyaanku dengan singkat.
+
+“Bapaknya selingkuh dan tak mau mempertanggungjawabkan perbuatannya,” jawabnya kasar.
+
+Bahkan, aku sempat kaget dibuatnya. Bagaimana tidak? Dia menjawab pertanyaanku dengan mata melotot. Aku masih heran dengan tingkahnya yang terus melotot kepadaku. Aku seperti dijadikan pelampiasan dendam atas peristiwa yang dia alami dan ceritakan kepadaku.
+
+Tiba-tiba dia berkata sepatah kata singkat, “Tolong jaga anak ini dan kursiku. Aku akan ke gerbong lima sebentar.”
+
+Aku tertawa manja. Kupikir dia tak betah menahan air kencingnya setelah minum sebotol air mineral. Tapi, kenapa dia harus ke gerbong lima? Ah, mungkin wc di gerbong empat ini telah sesak.
+
+“Ya,” aku mengiyakan perintahnya. Beberapa langkah kudengar dia meninggalkan gerbong empat. Aku hanya menjawab senyumnya setelah dia memalingkan wajahnya sebentar.
+
+Hawa terasa dingin saat memasuki Stasiun Pemalang, Jawa Tengah. Kudengar kereta sesak ini berhenti sejenak di Stasiun Pemalang. Ada keanehan memang setelah petir menyambar sangat dahsyat. Tapi, karena penumpang semakin banyak, maka kereta ini pun terus berjalan dengan kencang.
+
+Aku menatap jam di tanganku saat kereta berhenti lagi di stasiun kecil di Petarukan, salah satu kecamatan yang ada di Kabupaten Pemalang. Hujan mulai tak bersahabat lagi, bahkan suara tangisan bayi yang aku gendong kian terdengar nyaring. Bayi itu seakan memanggil ibunya agar segera kembali, begitulah aku mengira.
+
+“Sudah dua jam lebih si ibu tak kembali,” ucapku agak sedikit heran.
+
+Terdengar beberapa suara kaki riuh dengan sepatu warna putih, hitam, sesekali sandal jepit murahan dengan warna hijau polos. Salah satu di antara mereka ada yang beralas telapak kaki saja. Aku mengira itulah sandal kulit model terbaru. Tapi, anehnya lagi, mereka lari meninggalkan kursi saat terdengar suara letusan yang mahadahsyat.
+
+Aku melihat ada tas merah di sebelahku. Mungkin, tas itu sengaja ditinggalkan si ibu tadi. Ada secarik kertas berpita merah juga. Aku hanya membaca sebagian kata, “tolong jaga anak kita.”
+
+Ternyata gerombolan orang itu berlari bukan untuk melihat macan masuk kereta atau pun melihat kembang api di tengah hujan lebat atau melihat orang gila yang menari- nari riang. Melainkan karena gerbong lima terlepas dari relnya dan terguling-guling di sawah.nSuara benturannya mengalahkan petir.
+
+Aku segera lari ke arah gerombolan orang itu sambil tetap menggendong bayi.
+
+Aku menjerit kencang, “Raniiii…!!”
+
+Ini kali pertamanya aku menangis sampai mengeluarkan air mata penyesalan.
+
+Si anak yang dari tadi kulihat bertanya, “Kakak nangis kenapa? Kita kan selamat ataukah kakak kehilangan istri? Kakak sudah kawin kan? Tapi belum nikah ya? Kakak, ini aku bawa sapu tangan. Kita menangis bersama-sama setelah ini.” (*)
+
+MALAM membara membawaku untuk terus menanti kedatangan kereta warna biru. Aku duduk memperhatikan saksama setiap petugas yang mengabarkan kedatangannya. Kadang-kadang muncul suara dari speaker, “Mohon perhatiannya, akan datang dari jalur satu, kereta ekspres”. Lagi-lagi aku mengeluh, mungkinkah kereta yang harganya cuma tiga puluh lima ribu rupiah akan datang terlambat? Batinku berkata “sial!”
+
+Rasa kesalku akhirnya terobati saat kereta datang dari jalur dua. Sudah satu jam lamanya aku menanti dan aku hanya berpendapat bahwa ular sangat kuat pun tak bisa mengalahkan baja yang dalam sedetik bisa melaju sangat kencangnya. Sampai bebatuan melonjak tak pernah usai. Cepat larinya bak pacuan kuda yang memenangkan lotre mingguan.
+
+Butir-butir keringat jatuh dari mata dan daguku. Sesekali keluh kesah terucapkan dengan nada kasar. Panasnya malam setelah turun hujan tak ubahnya berjemur di padang sahara. Wajah-wajah dengan segala ekspresi telah terpampang rapi. Aku berjalan bersinggungan badan antara perempuan dan lelaki. Beberapa ibu dan anak kecil mencari gerbong yang agak sepi. Rupanya, ini tak terjadi hanya dalam realita pesta mudik dan Natal. Ataukah ini dijadikan kesempatan untuk menghemat pengeluaran dalam bulanan. Sungguh aku tak tahu.
+
+Begitu kereta berhenti, desakan koper dan jeritan manusia nyaring mengalahkan suara mesin. Di sini aku mencoba berjalan pelan dengan membawa koper besar. Seorang anak kecil menarik-narik celana jeansku.
+
+“Kak! Kakak orang kaya ya?” aku tak mengerti apa yang ditanyakannya.
+
+GERBONG LIMA
+
+Aku hanya tersenyum tak terlalu mengerti apa yang ditanyakannya. Pemenggalan-pemenggalan kata yang terlalu rumit, serumit semut mengatur pasukannya.
+
+Masih ditambah ada bayi merengek tak tahu bahasanya sendiri. Jelasnya aku masih sibuk mencari kursi kosong tak memedulikan beberapa pertanyaan dan omelan. Dari jauh kulihat seorang perempuan berhenti sejenak hingga dia keluarkan handphone warna ungu. Saatnya dia melintas di hadapanku, terlihat menarik hati, adakah magnet di kereta ini?
+
+Tubuhnya beraroma wangi apricot. Rambutnya seperti habis di- rebounding, lurus dan halus. Baju kuningnya melekat sangat ketat. Parasnya bulat penuh tata rias. Mata gemintangnya dibingkai warna biru pucat. Maskara telah melentikkan bulu matanya. Kulihat bibir tipisnya berwarna shocking pink. Dia sangat siap menggoda pria hingga salah satu pria merelakan tempat duduknya untuk perempuan tersebut.
+
+Pandanganku tertuju kepada kursi C 01. Di sana ada perempuan yang tadi kulihat sangat menarik. Dia memakai jaket keabu-abuan. Rapat matanya membuat orang-orang mengira bahwa dia adalah orang China yang sedang menikmati libur musim hujan di kereta ekonomi tanpa AC dan TV. Yang lebih parah, dia membuka jaketnya lalu mengipas-ngipas.
+
+“Tak kubiarkan berahi ini memuncak dan kesalahan di masa lalu tak akan terulang lagi di sini,” batinku mencoba menahannya. Lutut yang dia pamerkan kuanggap koran bekas.
+
+Pandanganku telah berubah. Kupalingkan mata kepada sosok di samping perempuan memesona itu. Tepatnya di kursi C 02. Aku melihat lelaki yang tak kekar atau pun terlalu kurus. Wajahnya terlihat sangat rapi dan dia memakai rompi ungu. Semilir angin malam membuat rasa kantuk terhenti di pundak lelaki kekar yang duduk di kursi C 03. Tapi, aku terusik suara nyaring pedagang asongan, dia hanya menambah desakan dalam kereta.
+
+Perangai anak-anak yang kujumpai tadi masih terus saja menanyakan keadaanku, bahkan soal cinta.
+
+“Kakak sudah nikah, ya? Ataukah sudah kawin?”
+
+Apakah kata-kata yang dimaksudkannya. Nikah dan kawin. Dua alur yang berbeda. Dua-duanya seperti belum kualami, tapi salah satu dari pilihan itu……. terbayang seperti menghantui.
+
+“Tidak, adik manis,” kedustaan yang menghujani otakku mulai terasa sakit. Kembali teringat gambar-gambar yang tak begitu jelas. Aku sulit mengatakannya bak menulis di atas lautan. Dan akulah lautan itu.
+
+Suasana gerah di malam hari walau pun hujan rintikrintik jatuh. Ditambah kebisingan para penumpang, aku tak berdaya melawan keadaan yang sangat menjengkelkan ini. Saat berhenti di Stasiun Cirebon, aku menguatkan langkah. Kulawan desakan para penumpang menuju gerbong empat. Mungkin di sana aku bisa mendapatkan tempat duduk dan segera pejamkan mata.
+
+GERBONG EMPAT
+
+Kereta yang aku tumpangi memasuki Cirebon. Beberapa stasiun di Jawa Barat kulalui. Gelap malam semakin melarut. Retakan-retakan daun patah. Aku mulai membaca doa tidur dan mimpi indah.
+
+Tetapi, beberapa kali handphone-ku berbunyi. Lalu lalang pesan seakan menjadi dampak akan berlebihan bergurau. Aku mencoba membalas beberapa sms yang masuk. Aku hanya menulis “aku sibuk.” Kantukku terobati.
+
+Di kursi D 01, kulihat ada seorang yang berkumis. Aku tak tahu itukah lele yang didambakan setiap perempuan? Ataukah perempuan mendambakan dada kekar dan anting kegagahan yang melekat di telinga kanannya? Bahkan, ada yang berbisik, “Aku lebih suka saat dia mengisap rokok. Jiwa kasarnya seakan terlihat langsung.” Aku hanya mendengar bisikannya.
+
+Tetapi, ada yang menimpali bisikannya. “Kepulan asap itulah yang nanti membuat asmaku kambuh. Apa dia mau membawakan dokter untukku?” aku agak setuju dengan komentar yang ini.
+
+Lalu, di belakangku muncul anak yang tadi kujumpai.
+
+“Kakak beruntung ya… tak merokok….”
+
+Aku tak mengerti apakah yang dikatakannya? Apakah dia menyindir ataukah sekadar kagum? Lebih-lebih aku heran kenapakah dia terus mengikutiku?
+
+Tetapi biarlah, toh dia hanya anak kecil yang kehilangan orang tua. Aku memberinya permen dan cokelat. Padahal, rencanaku, setelah sampai di Pekalongan, itu akan kuberikan kepada anak tetanggaku yang usianya hampir sama dengannya.
+
+Sedangkan di kursi D 02, kulihat seorang laki-laki yang hidupnya hanya memuji Tuhan. Tentu aku tahu saat kulihat yang dia genggam bukan handphone atau MP4, melainkan sebuah tasbih melingkar warna putih. Bibirnya masih saja dibasahi kalimat tayibah.
+
+Sampai di sini pengihatanku tak nakal lagi karena tak ada perempuan semenarik tadi. Dia adalah pemandangan terindah selama hidupku. Aku berharap bisa mendapatkan kursi kosong untuk mengobati rasa kantukku yang mulai menjalar ke mata. Tetapi akhirnya aku tertidur dengan gaya orang sedang buang air besar di wc umum.
+
+Lanskap angkasa menunjukkan amukan amarahnya. Beberapa petir menyambut kedatangan kereta di stasiun kecil Tegal. Desau dedaunan jati, apel, dan bahkan mangga golek. Wajah-wajah boneka sama seperti yang pernah kututurkan sebelumnya.
+
+Bau kotok ayam menyerbu hidung pesekku yang mungkin banyak komedo. Saat itu para pedagang asongan mengeraskan teriaknya untuk mengalahkan suara mesin, “nasi hangat makan… makan.” Ada juga suara pengemis, “uang… barokah… uang… barokah.” Aku tak habis pikir di dunia secanggih ini, masih ada pengemis yang seharian tak makan.
+
+Beberapa koran lusuh tergeletak setelah para penumpang berhenti di Tegal. Ini kesempatan bagiku untuk tidur di atas kursi. Dan akhirnya malam mengizinkanku duduk setelah sekian lama berdiri.
+
+“Syukurlah,” ucapku lalu langsung duduk di kursi D 01.
+
+Wajah yang kulihat di kursi D 02 di gerbong empat berganti dengan wajah seorang ibu yang menggendong bayinya, “Umur berapa, Bu?” tanyaku.
+
+Tapi, dia hanya mengangguk tanpa ada suara, “Hm…, bayi yang ibu gendong umur berapa?”
+
+Lagi-lagi tak ada jawaban. Seorang asongan membuatku bernafsu untuk membeli mi seduh dengan aroma bawang Bombay.
+
+“Satu, Mang! Harganya tiga ribu kan, Mang?”
+
+“Satunya lima ribu!” jawabnya kasar.
+
+Semenit sebelum aku merogoh saku tiba-tiba si ibu di sebelahku sudah duluan membayarnya.
+
+“Matur nuwun,” kataku.
+
+Hujan masih terus mengguyur beberapa wilayah di Jawa Tengah. Benakku bertanya-tanya. Akankah sampai di tujuan dengan selamat?
+
+Di tengah kesyahduan yang menjemput tidur, seorang polisi penarik karcis datang dengan pose keangkuhannya. Di atas sakunya terlihat beberapa lambang jabatan. Berkilau menyipitkan mata. Karcisku sudah kuberikan dan sosoknya mulai menjauh. Kini tinggal si ibu di sebelahku terus saja menenangkan bayinya yang rewel. Dia membuatku terganggu untuk mendengarkan MP4.
+
+“Berisik anak ibu!” tetapi teguranku tak membuatnya patah semangat.
+
+Aku kembali memandangi wajah di sampingku. Ada rasa aneh antara aku dan dia. Sepertinya aku pernah mengenali, bahkan akrab kepadanya, namun aku teringat bahwa ada luka di otakku.
+
+“Maaf, apakah kita pernah bertemu?” tanyaku.
+
+Jawabannya masih hampa.
+
+“Maaf, apakah kita pernah bertemu sebelumnya?” aku mengulangi pertanyaanku dengan ditambahi kata.
+
+Namun, dia membisu, acuh tak acuh. Hanya bayinya yang dia pikirkan.
+
+Bayi itu terus meronta-ronta seakan ingin bertemu dengan bapaknya.
+
+Aku mencoba menanyakan sebuah pertanyaan, “Bapaknya tak ikut kenapa?”
+
+Ya…, aku menduga bahwa dia akan tetap membisu. Tapi, tidak kali ini. Dia menjawab pertanyaanku dengan singkat.
+
+“Bapaknya selingkuh dan tak mau mempertanggungjawabkan perbuatannya,” jawabnya kasar.
+
+Bahkan, aku sempat kaget dibuatnya. Bagaimana tidak? Dia menjawab pertanyaanku dengan mata melotot. Aku masih heran dengan tingkahnya yang terus melotot kepadaku. Aku seperti dijadikan pelampiasan dendam atas peristiwa yang dia alami dan ceritakan kepadaku.
+
+Tiba-tiba dia berkata sepatah kata singkat, “Tolong jaga anak ini dan kursiku. Aku akan ke gerbong lima sebentar.”
+
+Aku tertawa manja. Kupikir dia tak betah menahan air kencingnya setelah minum sebotol air mineral. Tapi, kenapa dia harus ke gerbong lima? Ah, mungkin wc di gerbong empat ini telah sesak.
+
+“Ya,” aku mengiyakan perintahnya. Beberapa langkah kudengar dia meninggalkan gerbong empat. Aku hanya menjawab senyumnya setelah dia memalingkan wajahnya sebentar.
+
+Hawa terasa dingin saat memasuki Stasiun Pemalang, Jawa Tengah. Kudengar kereta sesak ini berhenti sejenak di Stasiun Pemalang. Ada keanehan memang setelah petir menyambar sangat dahsyat. Tapi, karena penumpang semakin banyak, maka kereta ini pun terus berjalan dengan kencang.
+
+Aku menatap jam di tanganku saat kereta berhenti lagi di stasiun kecil di Petarukan, salah satu kecamatan yang ada di Kabupaten Pemalang. Hujan mulai tak bersahabat lagi, bahkan suara tangisan bayi yang aku gendong kian terdengar nyaring. Bayi itu seakan memanggil ibunya agar segera kembali, begitulah aku mengira.
+
+“Sudah dua jam lebih si ibu tak kembali,” ucapku agak sedikit heran.
+
+Terdengar beberapa suara kaki riuh dengan sepatu warna putih, hitam, sesekali sandal jepit murahan dengan warna hijau polos. Salah satu di antara mereka ada yang beralas telapak kaki saja. Aku mengira itulah sandal kulit model terbaru. Tapi, anehnya lagi, mereka lari meninggalkan kursi saat terdengar suara letusan yang mahadahsyat.
+
+Aku melihat ada tas merah di sebelahku. Mungkin, tas itu sengaja ditinggalkan si ibu tadi. Ada secarik kertas berpita merah juga. Aku hanya membaca sebagian kata, “tolong jaga anak kita.”
+
+Ternyata gerombolan orang itu berlari bukan untuk melihat macan masuk kereta atau pun melihat kembang api di tengah hujan lebat atau melihat orang gila yang menari- nari riang. Melainkan karena gerbong lima terlepas dari relnya dan terguling-guling di sawah.nSuara benturannya mengalahkan petir.
+
+Aku segera lari ke arah gerombolan orang itu sambil tetap menggendong bayi.
+
+Aku menjerit kencang, “Raniiii…!!”
+
+Ini kali pertamanya aku menangis sampai mengeluarkan air mata penyesalan.
+
+Si anak yang dari tadi kulihat bertanya, “Kakak nangis kenapa? Kita kan selamat ataukah kakak kehilangan istri? Kakak sudah kawin kan? Tapi belum nikah ya? Kakak, ini aku bawa sapu tangan. Kita menangis bersama-sama setelah ini.” (*)
+
+MALAM membara membawaku untuk terus menanti kedatangan kereta warna biru. Aku duduk memperhatikan saksama setiap petugas yang mengabarkan kedatangannya. Kadang-kadang muncul suara dari speaker, “Mohon perhatiannya, akan datang dari jalur satu, kereta ekspres”. Lagi-lagi aku mengeluh, mungkinkah kereta yang harganya cuma tiga puluh lima ribu rupiah akan datang terlambat? Batinku berkata “sial!”
+
+Rasa kesalku akhirnya terobati saat kereta datang dari jalur dua. Sudah satu jam lamanya aku menanti dan aku hanya berpendapat bahwa ular sangat kuat pun tak bisa mengalahkan baja yang dalam sedetik bisa melaju sangat kencangnya. Sampai bebatuan melonjak tak pernah usai. Cepat larinya bak pacuan kuda yang memenangkan lotre mingguan.
+
+Butir-butir keringat jatuh dari mata dan daguku. Sesekali keluh kesah terucapkan dengan nada kasar. Panasnya malam setelah turun hujan tak ubahnya berjemur di padang sahara. Wajah-wajah dengan segala ekspresi telah terpampang rapi. Aku berjalan bersinggungan badan antara perempuan dan lelaki. Beberapa ibu dan anak kecil mencari gerbong yang agak sepi. Rupanya, ini tak terjadi hanya dalam realita pesta mudik dan Natal. Ataukah ini dijadikan kesempatan untuk menghemat pengeluaran dalam bulanan. Sungguh aku tak tahu.
+
+Begitu kereta berhenti, desakan koper dan jeritan manusia nyaring mengalahkan suara mesin. Di sini aku mencoba berjalan pelan dengan membawa koper besar. Seorang anak kecil menarik-narik celana jeansku.
+
+“Kak! Kakak orang kaya ya?” aku tak mengerti apa yang ditanyakannya.
+
+GERBONG LIMA
+
+Aku hanya tersenyum tak terlalu mengerti apa yang ditanyakannya. Pemenggalan-pemenggalan kata yang terlalu rumit, serumit semut mengatur pasukannya.
+
+Masih ditambah ada bayi merengek tak tahu bahasanya sendiri. Jelasnya aku masih sibuk mencari kursi kosong tak memedulikan beberapa pertanyaan dan omelan. Dari jauh kulihat seorang perempuan berhenti sejenak hingga dia keluarkan handphone warna ungu. Saatnya dia melintas di hadapanku, terlihat menarik hati, adakah magnet di kereta ini?
+
+Tubuhnya beraroma wangi apricot. Rambutnya seperti habis di- rebounding, lurus dan halus. Baju kuningnya melekat sangat ketat. Parasnya bulat penuh tata rias. Mata gemintangnya dibingkai warna biru pucat. Maskara telah melentikkan bulu matanya. Kulihat bibir tipisnya berwarna shocking pink. Dia sangat siap menggoda pria hingga salah satu pria merelakan tempat duduknya untuk perempuan tersebut.
+
+Pandanganku tertuju kepada kursi C 01. Di sana ada perempuan yang tadi kulihat sangat menarik. Dia memakai jaket keabu-abuan. Rapat matanya membuat orang-orang mengira bahwa dia adalah orang China yang sedang menikmati libur musim hujan di kereta ekonomi tanpa AC dan TV. Yang lebih parah, dia membuka jaketnya lalu mengipas-ngipas.
+
+“Tak kubiarkan berahi ini memuncak dan kesalahan di masa lalu tak akan terulang lagi di sini,” batinku mencoba menahannya. Lutut yang dia pamerkan kuanggap koran bekas.
+
+Pandanganku telah berubah. Kupalingkan mata kepada sosok di samping perempuan memesona itu. Tepatnya di kursi C 02. Aku melihat lelaki yang tak kekar atau pun terlalu kurus. Wajahnya terlihat sangat rapi dan dia memakai rompi ungu. Semilir angin malam membuat rasa kantuk terhenti di pundak lelaki kekar yang duduk di kursi C 03. Tapi, aku terusik suara nyaring pedagang asongan, dia hanya menambah desakan dalam kereta.
+
+Perangai anak-anak yang kujumpai tadi masih terus saja menanyakan keadaanku, bahkan soal cinta.
+
+“Kakak sudah nikah, ya? Ataukah sudah kawin?”
+
+Apakah kata-kata yang dimaksudkannya. Nikah dan kawin. Dua alur yang berbeda. Dua-duanya seperti belum kualami, tapi salah satu dari pilihan itu……. terbayang seperti menghantui.
+
+“Tidak, adik manis,” kedustaan yang menghujani otakku mulai terasa sakit. Kembali teringat gambar-gambar yang tak begitu jelas. Aku sulit mengatakannya bak menulis di atas lautan. Dan akulah lautan itu.
+
+Suasana gerah di malam hari walau pun hujan rintikrintik jatuh. Ditambah kebisingan para penumpang, aku tak berdaya melawan keadaan yang sangat menjengkelkan ini. Saat berhenti di Stasiun Cirebon, aku menguatkan langkah. Kulawan desakan para penumpang menuju gerbong empat. Mungkin di sana aku bisa mendapatkan tempat duduk dan segera pejamkan mata.
+
+GERBONG EMPAT
+
+Kereta yang aku tumpangi memasuki Cirebon. Beberapa stasiun di Jawa Barat kulalui. Gelap malam semakin melarut. Retakan-retakan daun patah. Aku mulai membaca doa tidur dan mimpi indah.
+
+Tetapi, beberapa kali handphone-ku berbunyi. Lalu lalang pesan seakan menjadi dampak akan berlebihan bergurau. Aku mencoba membalas beberapa sms yang masuk. Aku hanya menulis “aku sibuk.” Kantukku terobati.
+
+Di kursi D 01, kulihat ada seorang yang berkumis. Aku tak tahu itukah lele yang didambakan setiap perempuan? Ataukah perempuan mendambakan dada kekar dan anting kegagahan yang melekat di telinga kanannya? Bahkan, ada yang berbisik, “Aku lebih suka saat dia mengisap rokok. Jiwa kasarnya seakan terlihat langsung.” Aku hanya mendengar bisikannya.
+
+Tetapi, ada yang menimpali bisikannya. “Kepulan asap itulah yang nanti membuat asmaku kambuh. Apa dia mau membawakan dokter untukku?” aku agak setuju dengan komentar yang ini.
+
+Lalu, di belakangku muncul anak yang tadi kujumpai.
+
+“Kakak beruntung ya… tak merokok….”
+
+Aku tak mengerti apakah yang dikatakannya? Apakah dia menyindir ataukah sekadar kagum? Lebih-lebih aku heran kenapakah dia terus mengikutiku?
+
+Tetapi biarlah, toh dia hanya anak kecil yang kehilangan orang tua. Aku memberinya permen dan cokelat. Padahal, rencanaku, setelah sampai di Pekalongan, itu akan kuberikan kepada anak tetanggaku yang usianya hampir sama dengannya.
+
+Sedangkan di kursi D 02, kulihat seorang laki-laki yang hidupnya hanya memuji Tuhan. Tentu aku tahu saat kulihat yang dia genggam bukan handphone atau MP4, melainkan sebuah tasbih melingkar warna putih. Bibirnya masih saja dibasahi kalimat tayibah.
+
+Sampai di sini pengihatanku tak nakal lagi karena tak ada perempuan semenarik tadi. Dia adalah pemandangan terindah selama hidupku. Aku berharap bisa mendapatkan kursi kosong untuk mengobati rasa kantukku yang mulai menjalar ke mata. Tetapi akhirnya aku tertidur dengan gaya orang sedang buang air besar di wc umum.
+
+Lanskap angkasa menunjukkan amukan amarahnya. Beberapa petir menyambut kedatangan kereta di stasiun kecil Tegal. Desau dedaunan jati, apel, dan bahkan mangga golek. Wajah-wajah boneka sama seperti yang pernah kututurkan sebelumnya.
+
+Bau kotok ayam menyerbu hidung pesekku yang mungkin banyak komedo. Saat itu para pedagang asongan mengeraskan teriaknya untuk mengalahkan suara mesin, “nasi hangat makan… makan.” Ada juga suara pengemis, “uang… barokah… uang… barokah.” Aku tak habis pikir di dunia secanggih ini, masih ada pengemis yang seharian tak makan.
+
+Beberapa koran lusuh tergeletak setelah para penumpang berhenti di Tegal. Ini kesempatan bagiku untuk tidur di atas kursi. Dan akhirnya malam mengizinkanku duduk setelah sekian lama berdiri.
+
+“Syukurlah,” ucapku lalu langsung duduk di kursi D 01.
+
+Wajah yang kulihat di kursi D 02 di gerbong empat berganti dengan wajah seorang ibu yang menggendong bayinya, “Umur berapa, Bu?” tanyaku.
+
+Tapi, dia hanya mengangguk tanpa ada suara, “Hm…, bayi yang ibu gendong umur berapa?”
+
+Lagi-lagi tak ada jawaban. Seorang asongan membuatku bernafsu untuk membeli mi seduh dengan aroma bawang Bombay.
+
+“Satu, Mang! Harganya tiga ribu kan, Mang?”
+
+“Satunya lima ribu!” jawabnya kasar.
+
+Semenit sebelum aku merogoh saku tiba-tiba si ibu di sebelahku sudah duluan membayarnya.
+
+“Matur nuwun,” kataku.
+
+Hujan masih terus mengguyur beberapa wilayah di Jawa Tengah. Benakku bertanya-tanya. Akankah sampai di tujuan dengan selamat?
+
+Di tengah kesyahduan yang menjemput tidur, seorang polisi penarik karcis datang dengan pose keangkuhannya. Di atas sakunya terlihat beberapa lambang jabatan. Berkilau menyipitkan mata. Karcisku sudah kuberikan dan sosoknya mulai menjauh. Kini tinggal si ibu di sebelahku terus saja menenangkan bayinya yang rewel. Dia membuatku terganggu untuk mendengarkan MP4.
+
+“Berisik anak ibu!” tetapi teguranku tak membuatnya patah semangat.
+
+Aku kembali memandangi wajah di sampingku. Ada rasa aneh antara aku dan dia. Sepertinya aku pernah mengenali, bahkan akrab kepadanya, namun aku teringat bahwa ada luka di otakku.
+
+“Maaf, apakah kita pernah bertemu?” tanyaku.
+
+Jawabannya masih hampa.
+
+“Maaf, apakah kita pernah bertemu sebelumnya?” aku mengulangi pertanyaanku dengan ditambahi kata.
+
+Namun, dia membisu, acuh tak acuh. Hanya bayinya yang dia pikirkan.
+
+Bayi itu terus meronta-ronta seakan ingin bertemu dengan bapaknya.
+
+Aku mencoba menanyakan sebuah pertanyaan, “Bapaknya tak ikut kenapa?”
+
+Ya…, aku menduga bahwa dia akan tetap membisu. Tapi, tidak kali ini. Dia menjawab pertanyaanku dengan singkat.
+
+“Bapaknya selingkuh dan tak mau mempertanggungjawabkan perbuatannya,” jawabnya kasar.
+
+Bahkan, aku sempat kaget dibuatnya. Bagaimana tidak? Dia menjawab pertanyaanku dengan mata melotot. Aku masih heran dengan tingkahnya yang terus melotot kepadaku. Aku seperti dijadikan pelampiasan dendam atas peristiwa yang dia alami dan ceritakan kepadaku.
+
+Tiba-tiba dia berkata sepatah kata singkat, “Tolong jaga anak ini dan kursiku. Aku akan ke gerbong lima sebentar.”
+
+Aku tertawa manja. Kupikir dia tak betah menahan air kencingnya setelah minum sebotol air mineral. Tapi, kenapa dia harus ke gerbong lima? Ah, mungkin wc di gerbong empat ini telah sesak.
+
+“Ya,” aku mengiyakan perintahnya. Beberapa langkah kudengar dia meninggalkan gerbong empat. Aku hanya menjawab senyumnya setelah dia memalingkan wajahnya sebentar.
+
+Hawa terasa dingin saat memasuki Stasiun Pemalang, Jawa Tengah. Kudengar kereta sesak ini berhenti sejenak di Stasiun Pemalang. Ada keanehan memang setelah petir menyambar sangat dahsyat. Tapi, karena penumpang semakin banyak, maka kereta ini pun terus berjalan dengan kencang.
+
+Aku menatap jam di tanganku saat kereta berhenti lagi di stasiun kecil di Petarukan, salah satu kecamatan yang ada di Kabupaten Pemalang. Hujan mulai tak bersahabat lagi, bahkan suara tangisan bayi yang aku gendong kian terdengar nyaring. Bayi itu seakan memanggil ibunya agar segera kembali, begitulah aku mengira.
+
+“Sudah dua jam lebih si ibu tak kembali,” ucapku agak sedikit heran.
+
+Terdengar beberapa suara kaki riuh dengan sepatu warna putih, hitam, sesekali sandal jepit murahan dengan warna hijau polos. Salah satu di antara mereka ada yang beralas telapak kaki saja. Aku mengira itulah sandal kulit model terbaru. Tapi, anehnya lagi, mereka lari meninggalkan kursi saat terdengar suara letusan yang mahadahsyat.
+
+Aku melihat ada tas merah di sebelahku. Mungkin, tas itu sengaja ditinggalkan si ibu tadi. Ada secarik kertas berpita merah juga. Aku hanya membaca sebagian kata, “tolong jaga anak kita.”
+
+Ternyata gerombolan orang itu berlari bukan untuk melihat macan masuk kereta atau pun melihat kembang api di tengah hujan lebat atau melihat orang gila yang menari- nari riang. Melainkan karena gerbong lima terlepas dari relnya dan terguling-guling di sawah.nSuara benturannya mengalahkan petir.
+
+Aku segera lari ke arah gerombolan orang itu sambil tetap menggendong bayi.
+
+Aku menjerit kencang, “Raniiii…!!”
+
+Ini kali pertamanya aku menangis sampai mengeluarkan air mata penyesalan.
+
+Si anak yang dari tadi kulihat bertanya, “Kakak nangis kenapa? Kita kan selamat ataukah kakak kehilangan istri? Kakak sudah kawin kan? Tapi belum nikah ya? Kakak, ini aku bawa sapu tangan. Kita menangis bersama-sama setelah ini.” (*)
+
+MALAM membara membawaku untuk terus menanti kedatangan kereta warna biru. Aku duduk memperhatikan saksama setiap petugas yang mengabarkan kedatangannya. Kadang-kadang muncul suara dari speaker, “Mohon perhatiannya, akan datang dari jalur satu, kereta ekspres”. Lagi-lagi aku mengeluh, mungkinkah kereta yang harganya cuma tiga puluh lima ribu rupiah akan datang terlambat? Batinku berkata “sial!”
+
+Rasa kesalku akhirnya terobati saat kereta datang dari jalur dua. Sudah satu jam lamanya aku menanti dan aku hanya berpendapat bahwa ular sangat kuat pun tak bisa mengalahkan baja yang dalam sedetik bisa melaju sangat kencangnya. Sampai bebatuan melonjak tak pernah usai. Cepat larinya bak pacuan kuda yang memenangkan lotre mingguan.
+
+Butir-butir keringat jatuh dari mata dan daguku. Sesekali keluh kesah terucapkan dengan nada kasar. Panasnya malam setelah turun hujan tak ubahnya berjemur di padang sahara. Wajah-wajah dengan segala ekspresi telah terpampang rapi. Aku berjalan bersinggungan badan antara perempuan dan lelaki. Beberapa ibu dan anak kecil mencari gerbong yang agak sepi. Rupanya, ini tak terjadi hanya dalam realita pesta mudik dan Natal. Ataukah ini dijadikan kesempatan untuk menghemat pengeluaran dalam bulanan. Sungguh aku tak tahu.
+
+Begitu kereta berhenti, desakan koper dan jeritan manusia nyaring mengalahkan suara mesin. Di sini aku mencoba berjalan pelan dengan membawa koper besar. Seorang anak kecil menarik-narik celana jeansku.
+
+“Kak! Kakak orang kaya ya?” aku tak mengerti apa yang ditanyakannya.
+
+GERBONG LIMA
+
+Aku hanya tersenyum tak terlalu mengerti apa yang ditanyakannya. Pemenggalan-pemenggalan kata yang terlalu rumit, serumit semut mengatur pasukannya.
+
+Masih ditambah ada bayi merengek tak tahu bahasanya sendiri. Jelasnya aku masih sibuk mencari kursi kosong tak memedulikan beberapa pertanyaan dan omelan. Dari jauh kulihat seorang perempuan berhenti sejenak hingga dia keluarkan handphone warna ungu. Saatnya dia melintas di hadapanku, terlihat menarik hati, adakah magnet di kereta ini?
+
+Tubuhnya beraroma wangi apricot. Rambutnya seperti habis di- rebounding, lurus dan halus. Baju kuningnya melekat sangat ketat. Parasnya bulat penuh tata rias. Mata gemintangnya dibingkai warna biru pucat. Maskara telah melentikkan bulu matanya. Kulihat bibir tipisnya berwarna shocking pink. Dia sangat siap menggoda pria hingga salah satu pria merelakan tempat duduknya untuk perempuan tersebut.
+
+Pandanganku tertuju kepada kursi C 01. Di sana ada perempuan yang tadi kulihat sangat menarik. Dia memakai jaket keabu-abuan. Rapat matanya membuat orang-orang mengira bahwa dia adalah orang China yang sedang menikmati libur musim hujan di kereta ekonomi tanpa AC dan TV. Yang lebih parah, dia membuka jaketnya lalu mengipas-ngipas.
+
+“Tak kubiarkan berahi ini memuncak dan kesalahan di masa lalu tak akan terulang lagi di sini,” batinku mencoba menahannya. Lutut yang dia pamerkan kuanggap koran bekas.
+
+Pandanganku telah berubah. Kupalingkan mata kepada sosok di samping perempuan memesona itu. Tepatnya di kursi C 02. Aku melihat lelaki yang tak kekar atau pun terlalu kurus. Wajahnya terlihat sangat rapi dan dia memakai rompi ungu. Semilir angin malam membuat rasa kantuk terhenti di pundak lelaki kekar yang duduk di kursi C 03. Tapi, aku terusik suara nyaring pedagang asongan, dia hanya menambah desakan dalam kereta.
+
+Perangai anak-anak yang kujumpai tadi masih terus saja menanyakan keadaanku, bahkan soal cinta.
+
+“Kakak sudah nikah, ya? Ataukah sudah kawin?”
+
+Apakah kata-kata yang dimaksudkannya. Nikah dan kawin. Dua alur yang berbeda. Dua-duanya seperti belum kualami, tapi salah satu dari pilihan itu……. terbayang seperti menghantui.
+
+“Tidak, adik manis,” kedustaan yang menghujani otakku mulai terasa sakit. Kembali teringat gambar-gambar yang tak begitu jelas. Aku sulit mengatakannya bak menulis di atas lautan. Dan akulah lautan itu.
+
+Suasana gerah di malam hari walau pun hujan rintikrintik jatuh. Ditambah kebisingan para penumpang, aku tak berdaya melawan keadaan yang sangat menjengkelkan ini. Saat berhenti di Stasiun Cirebon, aku menguatkan langkah. Kulawan desakan para penumpang menuju gerbong empat. Mungkin di sana aku bisa mendapatkan tempat duduk dan segera pejamkan mata.
+
+GERBONG EMPAT
+
+Kereta yang aku tumpangi memasuki Cirebon. Beberapa stasiun di Jawa Barat kulalui. Gelap malam semakin melarut. Retakan-retakan daun patah. Aku mulai membaca doa tidur dan mimpi indah.
+
+Tetapi, beberapa kali handphone-ku berbunyi. Lalu lalang pesan seakan menjadi dampak akan berlebihan bergurau. Aku mencoba membalas beberapa sms yang masuk. Aku hanya menulis “aku sibuk.” Kantukku terobati.
+
+Di kursi D 01, kulihat ada seorang yang berkumis. Aku tak tahu itukah lele yang didambakan setiap perempuan? Ataukah perempuan mendambakan dada kekar dan anting kegagahan yang melekat di telinga kanannya? Bahkan, ada yang berbisik, “Aku lebih suka saat dia mengisap rokok. Jiwa kasarnya seakan terlihat langsung.” Aku hanya mendengar bisikannya.
+
+Tetapi, ada yang menimpali bisikannya. “Kepulan asap itulah yang nanti membuat asmaku kambuh. Apa dia mau membawakan dokter untukku?” aku agak setuju dengan komentar yang ini.
+
+Lalu, di belakangku muncul anak yang tadi kujumpai.
+
+“Kakak beruntung ya… tak merokok….”
+
+Aku tak mengerti apakah yang dikatakannya? Apakah dia menyindir ataukah sekadar kagum? Lebih-lebih aku heran kenapakah dia terus mengikutiku?
+
+Tetapi biarlah, toh dia hanya anak kecil yang kehilangan orang tua. Aku memberinya permen dan cokelat. Padahal, rencanaku, setelah sampai di Pekalongan, itu akan kuberikan kepada anak tetanggaku yang usianya hampir sama dengannya.
+
+Sedangkan di kursi D 02, kulihat seorang laki-laki yang hidupnya hanya memuji Tuhan. Tentu aku tahu saat kulihat yang dia genggam bukan handphone atau MP4, melainkan sebuah tasbih melingkar warna putih. Bibirnya masih saja dibasahi kalimat tayibah.
+
+Sampai di sini pengihatanku tak nakal lagi karena tak ada perempuan semenarik tadi. Dia adalah pemandangan terindah selama hidupku. Aku berharap bisa mendapatkan kursi kosong untuk mengobati rasa kantukku yang mulai menjalar ke mata. Tetapi akhirnya aku tertidur dengan gaya orang sedang buang air besar di wc umum.
+
+Lanskap angkasa menunjukkan amukan amarahnya. Beberapa petir menyambut kedatangan kereta di stasiun kecil Tegal. Desau dedaunan jati, apel, dan bahkan mangga golek. Wajah-wajah boneka sama seperti yang pernah kututurkan sebelumnya.
+
+Bau kotok ayam menyerbu hidung pesekku yang mungkin banyak komedo. Saat itu para pedagang asongan mengeraskan teriaknya untuk mengalahkan suara mesin, “nasi hangat makan… makan.” Ada juga suara pengemis, “uang… barokah… uang… barokah.” Aku tak habis pikir di dunia secanggih ini, masih ada pengemis yang seharian tak makan.
+
+Beberapa koran lusuh tergeletak setelah para penumpang berhenti di Tegal. Ini kesempatan bagiku untuk tidur di atas kursi. Dan akhirnya malam mengizinkanku duduk setelah sekian lama berdiri.
+
+“Syukurlah,” ucapku lalu langsung duduk di kursi D 01.
+
+Wajah yang kulihat di kursi D 02 di gerbong empat berganti dengan wajah seorang ibu yang menggendong bayinya, “Umur berapa, Bu?” tanyaku.
+
+Tapi, dia hanya mengangguk tanpa ada suara, “Hm…, bayi yang ibu gendong umur berapa?”
+
+Lagi-lagi tak ada jawaban. Seorang asongan membuatku bernafsu untuk membeli mi seduh dengan aroma bawang Bombay.
+
+“Satu, Mang! Harganya tiga ribu kan, Mang?”
+
+“Satunya lima ribu!” jawabnya kasar.
+
+Semenit sebelum aku merogoh saku tiba-tiba si ibu di sebelahku sudah duluan membayarnya.
+
+“Matur nuwun,” kataku.
+
+Hujan masih terus mengguyur beberapa wilayah di Jawa Tengah. Benakku bertanya-tanya. Akankah sampai di tujuan dengan selamat?
+
+Di tengah kesyahduan yang menjemput tidur, seorang polisi penarik karcis datang dengan pose keangkuhannya. Di atas sakunya terlihat beberapa lambang jabatan. Berkilau menyipitkan mata. Karcisku sudah kuberikan dan sosoknya mulai menjauh. Kini tinggal si ibu di sebelahku terus saja menenangkan bayinya yang rewel. Dia membuatku terganggu untuk mendengarkan MP4.
+
+“Berisik anak ibu!” tetapi teguranku tak membuatnya patah semangat.
+
+Aku kembali memandangi wajah di sampingku. Ada rasa aneh antara aku dan dia. Sepertinya aku pernah mengenali, bahkan akrab kepadanya, namun aku teringat bahwa ada luka di otakku.
+
+“Maaf, apakah kita pernah bertemu?” tanyaku.
+
+Jawabannya masih hampa.
+
+“Maaf, apakah kita pernah bertemu sebelumnya?” aku mengulangi pertanyaanku dengan ditambahi kata.
+
+Namun, dia membisu, acuh tak acuh. Hanya bayinya yang dia pikirkan.
+
+Bayi itu terus meronta-ronta seakan ingin bertemu dengan bapaknya.
+
+Aku mencoba menanyakan sebuah pertanyaan, “Bapaknya tak ikut kenapa?”
+
+Ya…, aku menduga bahwa dia akan tetap membisu. Tapi, tidak kali ini. Dia menjawab pertanyaanku dengan singkat.
+
+“Bapaknya selingkuh dan tak mau mempertanggungjawabkan perbuatannya,” jawabnya kasar.
+
+Bahkan, aku sempat kaget dibuatnya. Bagaimana tidak? Dia menjawab pertanyaanku dengan mata melotot. Aku masih heran dengan tingkahnya yang terus melotot kepadaku. Aku seperti dijadikan pelampiasan dendam atas peristiwa yang dia alami dan ceritakan kepadaku.
+
+Tiba-tiba dia berkata sepatah kata singkat, “Tolong jaga anak ini dan kursiku. Aku akan ke gerbong lima sebentar.”
+
+Aku tertawa manja. Kupikir dia tak betah menahan air kencingnya setelah minum sebotol air mineral. Tapi, kenapa dia harus ke gerbong lima? Ah, mungkin wc di gerbong empat ini telah sesak.
+
+“Ya,” aku mengiyakan perintahnya. Beberapa langkah kudengar dia meninggalkan gerbong empat. Aku hanya menjawab senyumnya setelah dia memalingkan wajahnya sebentar.
+
+Hawa terasa dingin saat memasuki Stasiun Pemalang, Jawa Tengah. Kudengar kereta sesak ini berhenti sejenak di Stasiun Pemalang. Ada keanehan memang setelah petir menyambar sangat dahsyat. Tapi, karena penumpang semakin banyak, maka kereta ini pun terus berjalan dengan kencang.
+
+Aku menatap jam di tanganku saat kereta berhenti lagi di stasiun kecil di Petarukan, salah satu kecamatan yang ada di Kabupaten Pemalang. Hujan mulai tak bersahabat lagi, bahkan suara tangisan bayi yang aku gendong kian terdengar nyaring. Bayi itu seakan memanggil ibunya agar segera kembali, begitulah aku mengira.
+
+“Sudah dua jam lebih si ibu tak kembali,” ucapku agak sedikit heran.
+
+Terdengar beberapa suara kaki riuh dengan sepatu warna putih, hitam, sesekali sandal jepit murahan dengan warna hijau polos. Salah satu di antara mereka ada yang beralas telapak kaki saja. Aku mengira itulah sandal kulit model terbaru. Tapi, anehnya lagi, mereka lari meninggalkan kursi saat terdengar suara letusan yang mahadahsyat.
+
+Aku melihat ada tas merah di sebelahku. Mungkin, tas itu sengaja ditinggalkan si ibu tadi. Ada secarik kertas berpita merah juga. Aku hanya membaca sebagian kata, “tolong jaga anak kita.”
+
+Ternyata gerombolan orang itu berlari bukan untuk melihat macan masuk kereta atau pun melihat kembang api di tengah hujan lebat atau melihat orang gila yang menari- nari riang. Melainkan karena gerbong lima terlepas dari relnya dan terguling-guling di sawah.nSuara benturannya mengalahkan petir.
+
+Aku segera lari ke arah gerombolan orang itu sambil tetap menggendong bayi.
+
+Aku menjerit kencang, “Raniiii…!!”
+
+Ini kali pertamanya aku menangis sampai mengeluarkan air mata penyesalan.
+
+Si anak yang dari tadi kulihat bertanya, “Kakak nangis kenapa? Kita kan selamat ataukah kakak kehilangan istri? Kakak sudah kawin kan? Tapi belum nikah ya? Kakak, ini aku bawa sapu tangan. Kita menangis bersama-sama setelah ini.” (*)
